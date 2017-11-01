@@ -1,3 +1,3 @@
 # hello-world
 hello everyone,
-           i am india .always on a purpose to make the change
+           i am from india .Always on a purpose to make the change.
